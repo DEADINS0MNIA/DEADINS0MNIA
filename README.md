@@ -1,6 +1,11 @@
 <img width="2048" height="1261" alt="image" src="https://github.com/user-attachments/assets/f107b3e1-c7d8-4779-881c-4b05db45f00f" />
 
 
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3146wn7sqxgjltfrqbsegkzyucfy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=6d659e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
 Im mostly s-afk bc im doing stuff on my phone and playing on my laptop so theres no immedeate response from me
 i will be semi nonverbal for my own comfort bc sometimes i cant control what comes out of my mouth sorry but not sorry
 
