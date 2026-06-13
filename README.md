@@ -1,18 +1,17 @@
-<img width="1000" height="616" alt="An_All-Out_Performance_T" src="https://github.com/user-attachments/assets/f25219ba-833b-4bb0-9339-9780830e804a" />
+         𓏵 "𝐼 ℎ𝑎𝑣𝑒 𝑑𝑒𝑎𝑑 𝑠𝑙𝑒𝑒𝑝 𝑎𝑛𝑑 𝑚𝑜𝑠𝑡𝑙𝑦 𝑠𝑡𝑢𝑐𝑘 𝑎𝑤𝑎𝑘𝑒."
+
+<img width="534" height="467" alt="1000006772" src="https://github.com/user-attachments/assets/32d9f924-7af7-4c19-9089-5e52de8e01ff" />
+
+                  . ✦                  
 
 
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3146wn7sqxgjltfrqbsegkzyucfy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=6d659e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3146wn7sqxgjltfrqbsegkzyucfy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=6d659e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+Ok um hi FEW things I wanna go over as if now. 
 
+• ɪғ ᴜ ᴄᴏᴍᴇ ᴀᴛ ʙᴇ ʙᴇɪɴɢ ʀᴀᴄɪsᴛ ᴏʀ ʜᴏᴍᴏᴘʜᴏʙɪᴄ ᴏʀ ᴇᴠᴇɴ sᴇɴᴅɪɴɢ ᴍᴇ ᴅᴇᴀᴛʜ ᴛʜʀᴇᴀᴛs ɪ ᴡɪʟʟ ʜᴀʀᴀss ʏᴏᴜ. 
 
+• ɪ ғᴏʀɢɪᴠᴇ ʙᴜᴛ ᴅᴏɴ'ᴛ ғᴏʀɢᴇᴛ, sᴏ ɪ'ʟʟ ɢɪᴠᴇ ᴜ ᴀɴᴏᴛʜᴇʀ ᴄʜᴀɴᴄᴇ ʙᴄ ɪᴍ ɴɪᴄᴇ ʙᴜᴛ ɪ ᴡᴏɴ'ᴛ ʙᴇ sᴡᴇᴇᴛ ᴡɪᴛʜ ᴜ ᴛʜᴇ ғɪʀsᴛ ᴛɪᴍᴇ. 
 
-Im mostly s-afk bc im doing stuff on my phone and playing on my laptop so theres no immedeate response from me
-i will be semi nonverbal for my own comfort bc sometimes i cant control what comes out of my mouth sorry but not sorry
-
-sometimes im mainly busy taking care of things and dont have time to chat so its will mainly be dniucf party or a Specific person ect from now on unless otherwise
-
-if i suddely leave, no i do not hate you and im not holding anything against u its probably a bad mood or i dont wanna talk and lost energy
-again sorry not sorry for the way i act deal with it.
-
-
+(Ill add more later bc I'm lazy but thats it for now I guess) 
