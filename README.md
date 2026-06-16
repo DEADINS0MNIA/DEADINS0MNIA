@@ -1,17 +1,15 @@
-   𓏵 "𝐼 ℎ𝑎𝑣𝑒 𝑑𝑒𝑎𝑑 𝑠𝑙𝑒𝑒𝑝 𝑎𝑛𝑑 𝑚𝑜𝑠𝑡𝑙𝑦 𝑠𝑡𝑢𝑐𝑘 𝑎𝑤𝑎𝑘𝑒."
 
-<img width="534" height="467" alt="1000006772" src="https://github.com/user-attachments/assets/32d9f924-7af7-4c19-9089-5e52de8e01ff" />
+![1000026533](https://github.com/user-attachments/assets/c112fa1e-9aa1-4969-b442-857bcb0faf2c)
+![1000026480](https://github.com/user-attachments/assets/ee8f909a-4afe-4b34-9035-d91beea9a5ad)
 
-   . ✦                  
+<p align="center"> ㅤ♡ྀི ₊ " (𝑨𝑠 𝑖𝑓 𝑝𝑎𝑖𝑛𝑡𝑖𝑛𝑔 𝑚𝑦 𝑒𝑣𝑒𝑛𝑡𝑓𝑢𝑙 𝑑𝑎𝑦𝑠 𝑖𝑛 𝑠𝑐𝑎𝑟𝑙𝑒𝑡,𝑰𝑡 𝑤𝑎𝑠 𝑠𝑢𝑐ℎ 𝑎 𝑔𝑟𝑎𝑐𝑒𝑓𝑢𝑙 𝑙𝑜𝑣𝑒,𝑠𝑢𝑐ℎ 𝑎 𝑔𝑟𝑎𝑐𝑒𝑓𝑢𝑙 𝑙𝑜𝑣𝑒 𝑭𝒂𝒓𝒘𝒆𝒍𝒍. ) ‧₊˚♪ 𝄞₊˚⊹
 
+<img width="1280" height="224" alt="1000026485" src="https://github.com/user-attachments/assets/685d9ba7-70d2-49cd-8a51-7e232e9f8a88" />
 
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3146wn7sqxgjltfrqbsegkzyucfy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=6d659e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<img width="20" height="20" alt="1000026468" src="https://github.com/user-attachments/assets/204042e7-0aa7-4ec1-a690-300e30593b10" />
+My socals aren't done yet give me time😭
 
-
-Ok um hi FEW things I wanna go over as if now. 
-
-• ɪғ ᴜ ᴄᴏᴍᴇ ᴀᴛ ʙᴇ ʙᴇɪɴɢ ʀᴀᴄɪsᴛ ᴏʀ ʜᴏᴍᴏᴘʜᴏʙɪᴄ ᴏʀ ᴇᴠᴇɴ sᴇɴᴅɪɴɢ ᴍᴇ ᴅᴇᴀᴛʜ ᴛʜʀᴇᴀᴛs ɪ ᴡɪʟʟ ʜᴀʀᴀss ʏᴏᴜ. 
-
-• ɪ ғᴏʀɢɪᴠᴇ ʙᴜᴛ ᴅᴏɴ'ᴛ ғᴏʀɢᴇᴛ, sᴏ ɪ'ʟʟ ɢɪᴠᴇ ᴜ ᴀɴᴏᴛʜᴇʀ ᴄʜᴀɴᴄᴇ ʙᴄ ɪᴍ ɴɪᴄᴇ ʙᴜᴛ ɪ ᴡᴏɴ'ᴛ ʙᴇ sᴡᴇᴇᴛ ᴡɪᴛʜ ᴜ ᴛʜᴇ ғɪʀsᴛ ᴛɪᴍᴇ. 
-
-(Ill add more later bc I'm lazy but thats it for now I guess) 
+![1000026486](https://github.com/user-attachments/assets/f556641c-c0b4-4346-9134-0c7f1237c64c)
+![1000026479](https://github.com/user-attachments/assets/bea245ba-99c2-406a-9998-70a9fe0b1774)
+![1000026534](https://github.com/user-attachments/assets/c1be96b0-092a-43a7-aa5c-b4286a1572f9)
+  
