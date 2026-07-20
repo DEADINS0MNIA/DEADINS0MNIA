@@ -7,7 +7,7 @@
 <img width="1280" height="224" alt="1000026485" src="https://github.com/user-attachments/assets/685d9ba7-70d2-49cd-8a51-7e232e9f8a88" />
 
 <img width="20" height="20" alt="1000026468" src="https://github.com/user-attachments/assets/204042e7-0aa7-4ec1-a690-300e30593b10" />
-✧ (𝘌𝘕 𝘗𝘙𝘖𝘕𝘖𝘜𝘕𝘚) [https://en.pronouns.page/@DEADINS0MNIA]
+✧ [𝘌𝘕 𝘗𝘙𝘖𝘕𝘖𝘜𝘕𝘚] (https://en.pronouns.page/@𝘋𝘌𝘈𝘋𝘐𝘕𝘚0𝘔𝘕𝘐𝘈)
 
 ![1000026486](https://github.com/user-attachments/assets/f556641c-c0b4-4346-9134-0c7f1237c64c)
 ![1000026479](https://github.com/user-attachments/assets/bea245ba-99c2-406a-9998-70a9fe0b1774)
