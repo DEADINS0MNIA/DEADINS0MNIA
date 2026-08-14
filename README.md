@@ -9,7 +9,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ────![](https://github.com/user-attachments/assets/6ba101e2-f8ae-4a2b-bd9f-43571104988c)────
 
-˖ ݁♬⋆.˚𝄞 " put ummmmm put ur links here ok 👀👀👀👀 " ![](https://github.com/user-attachments/assets/052caea8-76b8-4456-a936-bdbbdb47087f) 
+˖ ݁♬⋆.˚𝄞 " [𝘗𝘵'𝘴 𝘔𝘢𝘧𝘶𝘺𝘶 𝘢𝘴𝘢𝘩𝘪𝘯𝘢]( https://github.com/pt-hall-of-media)  ❄️  [𝘗𝘵'𝘴 𝘕𝘪𝘨𝘩𝘵𝘤𝘰𝘳𝘥](https://github.com/pt-hall-of-media)  ❄️  [𝘌𝘯 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 ]( https://en.pronouns.page/@DEADINS0MNIA)  ❄️  [𝘈𝘵𝘢𝘣𝘰𝘰𝘬 ]( https://deadins0mnia.atabook.org)" ![](https://github.com/user-attachments/assets/052caea8-76b8-4456-a936-bdbbdb47087f) 
 
 ![1000028847](https://github.com/user-attachments/assets/f77e4394-cd3f-4768-afa6-9fe3b1baf6fe)
 
